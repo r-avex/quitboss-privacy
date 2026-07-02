@@ -49,4 +49,4 @@ We may update this policy from time to time. Changes will be reflected by updati
 
 ## Contact
 
-If you have questions about this privacy policy, contact us at: [YOUR EMAIL]
+If you have questions about this privacy policy, contact us at: quitboss45@gmail.com
